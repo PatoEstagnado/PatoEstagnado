@@ -1,4 +1,7 @@
-## Hi there 👋
+![](![image](https://github.com/PatoEstagnado/PatoEstagnado/assets/170666069/26cc803e-cb10-4d31-8434-fdf43c0d7e32)
+)
+)
+
 
 <!--
 **PatoEstagnado/PatoEstagnado** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
